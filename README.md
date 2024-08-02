@@ -4,8 +4,6 @@
 
 <h4 align="center">
   
-[**rentry**](https://rentry.co/antIerqueen)ㅤㅤㅤㅤ ㅤㅤ[**atabook**](https://antlerqueen.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[**pronouns**](https://pronouns.cc/@antlerqueen)
-
+[rentry](https://rentry.co/antIerqueen)ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ[atabook](https://antlerqueen.atabook.org/)ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ[pronouns](https://pronouns.cc/@antlerqueen)
 </h4> 
-
 </p>
