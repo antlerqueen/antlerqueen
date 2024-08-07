@@ -2,7 +2,7 @@
 
 <h4 align="center">
 
-![](https://komarev.com/ghpvc/?username=antlerqueen&color=22150c)
+![](https://komarev.com/ghpvc/?username=antlerqueen&color=22150c&label=ㅤ✶ㅤ)
 
 </h4> 
   
