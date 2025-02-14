@@ -1,7 +1,7 @@
 
 <h4 align="center">
 
-![](https://files.catbox.moe/u21vty.jpeg)
+![](https://files.catbox.moe/wlcbns.jpeg)
 
 </h4>
 <h4 align="center">
