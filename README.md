@@ -1,6 +1,6 @@
 
 <h4 align="center">
 
-![](https://files.catbox.moe/alv188.png)
+![](https://files.catbox.moe/aftk0q.png)
 
 </h4>
