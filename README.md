@@ -1,6 +1,8 @@
 
 <h4 align="center">
 
-![](https://files.catbox.moe/aftk0q.png)
+![](https://files.catbox.moe/0pskrb.png)
+
+[RENTRY]()‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [ATABOOK]() ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [STRAWPAGE]()
 
 </h4>
