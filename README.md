@@ -4,7 +4,6 @@
 
 
 ‎‎[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/antlerqueen)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [新𝗕𝗢𝗢𝗞](https://antlerqueen.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎[𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://antlerqween.straw.page/)
- ‎ ‎ ‎‎ 
 ‎<img width="828" height="600" alt="Titelloses_1235_20261021103213" src="https://github.com/user-attachments/assets/5e143f60-9185-45d5-9237-ed00cf420d56" />
 
 
