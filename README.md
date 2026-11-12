@@ -6,7 +6,9 @@
 
 ‎‎[𝗥𝗘𝗡𝗧𝗥𝗬](https://rentry.co/antlerqueen)‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ [新𝗕𝗢𝗢𝗞](https://antlerqueen.atabook.org/) ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎[𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘](https://antlerqween.straw.page/)
 ‎<img width="828" height="600" alt="Titelloses_1235_20261021103550" src="https://github.com/user-attachments/assets/5ebc765a-528d-4cdc-b4e9-74eb4fff06c1" />
+<img width="599" height="500" alt="IMG_7911 (1)" src="https://github.com/user-attachments/assets/7707fba5-acc3-4102-9106-621a46721a88" />
 
+hey @deepaffection~ :-3
 
 
 </h4>
